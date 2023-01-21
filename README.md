@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil, pode me chamar de Sotto 😁
+## Bem-vindx ao meu perfil, pode me chamar de Sotto 😁
 
  <div>
    <a href="https://github.com/Gb-Sotto">
