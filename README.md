@@ -1,4 +1,4 @@
-## Bem-vindx ao meu perfil, pode me chamar de Sotto 😁
+## Olá, eu sou o Gabriel, fique a vontade pra dar uma olhada no meu perfil! 😁
 
  <div>
    <a href="https://github.com/Gb-Sotto">
